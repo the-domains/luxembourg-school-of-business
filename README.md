@@ -1,0 +1,1 @@
+# luxembourg-school-of-business
